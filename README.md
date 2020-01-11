@@ -6,3 +6,5 @@ I love Music
 Share my thoughts
 list my various projects to develop
 Follow instructions from reliable trusted sources
+Make art and Most of all try to have fun
+make sounds voices and images 
